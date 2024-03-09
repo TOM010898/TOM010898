@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TOM010898
+- 👋 Hi, I’m TOM
 - 👀 I’m interested in learning basic in everything in the world
 - 🌱 I’m currently learning what is like jobless person life
 - 💞️ I’m looking to collaborate on 😜😜😜
